@@ -1,4 +1,4 @@
-# 
+# Professional Adobe Photoshop plugins for Mac OS | VIP Adobe Photoshop plugins for PC Windows. Featuring export-to-SVG and hair-system — optimized for maximum performance on every platform.
 
 
 
